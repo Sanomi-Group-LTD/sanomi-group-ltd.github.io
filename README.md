@@ -1,0 +1,1 @@
+# luxelife-play-store-privacy-policy
